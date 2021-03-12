@@ -1,1 +1,1 @@
-# Stefany-Caesarya_I0320096_Adit-Mahendra_Tugas2
+# Stefany-Caesarya_I0320096_Aditya-Mahendra_Tugas2
